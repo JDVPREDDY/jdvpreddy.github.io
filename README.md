@@ -1,1 +1,0 @@
-# jdvpreddy.github.io
